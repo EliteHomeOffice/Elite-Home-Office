@@ -6,3 +6,5 @@ Elite Home Office GitHub Repo
 Our mission is to elevate your home office with luxurious design, providing exclusive furniture solutions crafted for success and tailored for the elite professional.
 
 Each piece in our collection is meticulously designed with exquisite craftsmanship, ensuring that every detail inspires excellence and reflects your personal taste.
+
+Check out our [luxury desk collection](https://elitehomeoffice.com/collections/desks) for an expertly curated selection of premium items.
